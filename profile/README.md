@@ -88,6 +88,8 @@ A place where creators can bring to life the ideas that feel too strange, too ge
 
 --- 
 
-> ***“Knowledge is a sunbeam; some chase it, some nap in it, and at NSSNU, every cat finds its place within the light.”***
+<p align="center"><strong><em>
+"Knowledge is a sunbeam; some chase it, some nap in it, and at NSSNU, every cat finds its place within the light."
+</em></strong></p>
 
 --- 
